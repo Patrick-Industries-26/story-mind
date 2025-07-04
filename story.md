@@ -1,1 +1,1 @@
-A Man who worked in X company, as a network support engineer. Then He leave the company, and joined in a college to get masters. But now, he regret his decision.
+A Man who worked in X company, as a network support engineer. Then He leave the company, and joined in a college to get masters. But now, he regret his decision. As time goes by he started to feel that everyone are regretting their decisions but what matters the most is that its their decision and they had the courage to do it.
